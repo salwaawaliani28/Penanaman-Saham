@@ -1,0 +1,2 @@
+# Penanaman-Saham
+Saham kuy
